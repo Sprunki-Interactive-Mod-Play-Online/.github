@@ -1,7 +1,7 @@
 
 # Sprunki Interactive Mod: Play it Online  
 
-CLICK HERE TO PLAY👉 **[Play Sprunki Interactive Mod]([https://www.y9freegames.com/](https://www.y9freegames.com/game/sprunki-interactive-mod/))**  
+# CLICK HERE👉  [Play Sprunki Interactive Mod](https://www.y9freegames.com/game/sprunki-interactive-mod/)  
 
 
 Sprunki Interactive Mod takes music creation to the next level by combining sound, motion, and character interactions. This innovative fan-made mod transforms the traditional Incredibox experience into a dynamic and visually engaging adventure. With roaming characters that create melodies and evolving soundscapes, Sprunki Interactive Mod offers endless opportunities for creativity.  
